@@ -1,0 +1,1 @@
+# 2026-08-19-skills-sh-credential-theft-campaign-checklist-images
